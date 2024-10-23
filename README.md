@@ -1,4 +1,4 @@
-##### <center> 🌎 埋骨何须桑梓地  人生何处不青山 🏞 </center>
+##### <center> 好好爱自己，加油努力 Passion 🐒🐒🐒 ！！！ </center>
 
 ![](./assets/header.png)
 
