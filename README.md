@@ -1,4 +1,4 @@
-##### <center> 好好爱自己，加油努力 Passion 🐒🐒🐒 ！！！ </center>
+##### <center> Passion 🐒🐒🐒 ！！！ </center>
 
 ![](./assets/header.png)
 
